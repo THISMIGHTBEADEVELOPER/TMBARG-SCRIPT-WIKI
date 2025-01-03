@@ -1,1 +1,1 @@
-yeah
+https://github.com/THISMIGHTBEADEVELOPER/TMBARG-SCRIPT-WIKI/wiki/
